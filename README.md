@@ -13,4 +13,4 @@ Purchased:
 - [Rear Brakes](https://www.autozone.com/brakes-and-traction-control/brake-pads/p/duralast-ceramic-brake-pads-d1808/916073_0_0?searchText=rear+brakes)
 - ~~[Brake Caliper Tool](https://www.harborfreight.com/disc-brake-pad-and-caliper-service-tool-kit-11-piece-63264.html)~~ *returned
 
-Used Swanson's garage to do this maintenance work. 30K maintenance work, regular 6k mile maintenance as well. Oil change, tire rotation. Needed to check brakes for 30K, brakes had plenty of life left on them. 
+Used Swanson's garage to do this maintenance work. 30K maintenance work, regular 6k mile maintenance as well. Oil change, tire rotation. Rotated tires Front straight back, back cross to front. Needed to check brakes for 30K, brakes had plenty of life left on them. 
